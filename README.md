@@ -1,2 +1,2 @@
-# 2022_wa_pisemka_sochor
+# 13.12. 2022
 Marek Sochor 
